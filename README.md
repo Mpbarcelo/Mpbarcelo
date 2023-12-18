@@ -18,7 +18,7 @@
  
 <br>
  
-### Me sigam nas redes abaixo!
+### Me sigam nas redes sociais!
  
 <div> 
   <a href="https://www.youtube.com/@MarciaPintoBarcelo1" target="_blank">
